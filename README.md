@@ -1,2 +1,2 @@
 
-Passionate developer, loving dad.
+Passionate developer.
